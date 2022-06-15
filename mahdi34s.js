@@ -1,7 +1,7 @@
 var dataUrl = [
   
-  'https://www.profitablecpmgate.com/mjica607za?key=2e7bf748dd3e7d803a90bbd32fd95f54',
-  'https://arousedimitateplane.com/tykpbwuirx?key=2bd2cc016f846e31eba9c90b01a4ed2d'
+  'https://arousedimitateplane.com/qqw44zz8ep?key=5b37e5e645b8b4a817e3c70f3fcd1b09',
+  'https://www.profitablecpmgate.com/q3dt60cz?key=ad87793ad0a063f2f739f87672bea5fe'
   
   
   
